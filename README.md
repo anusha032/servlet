@@ -20,6 +20,9 @@ https://github.com/user-attachments/assets/2eeaa3fa-1b43-4e2b-b16f-c69b2508a50b
 7b output :-https://github.com/user-attachments/assets/de6ad62f-f722-41a9-b45e-f11c3b17e723
 
 
+8a output :- https://github.com/user-attachments/assets/5cf031ff-3be8-416e-ac19-fcb186c20144 
+https://github.com/user-attachments/assets/b93fece5-eed5-4deb-affd-b91af4fad95f
+
 
 
 
