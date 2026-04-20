@@ -7,6 +7,12 @@ https://github.com/user-attachments/assets/4b5bb2e0-22c6-4f1d-87af-0a239d7d1c2b
 https://github.com/user-attachments/assets/eb3f6e65-dd61-4a06-8bad-652ce4f3214e
 
 
+6c output : https://github.com/user-attachments/assets/a9737e6a-7089-4e6d-acea-16eb2fc7e91e             
+          https://github.com/user-attachments/assets/5efe5f54-1a63-44ad-8bf3-c338ae215e74
+
+
+
+
 
 
 
