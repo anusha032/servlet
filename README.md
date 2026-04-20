@@ -28,6 +28,9 @@ https://github.com/user-attachments/assets/b93fece5-eed5-4deb-affd-b91af4fad95f
 https://github.com/user-attachments/assets/2eb5247b-2580-45a3-86b8-feebedcc64ac
 
 
+9a output :https://github.com/user-attachments/assets/e78b073a-6ab4-4c47-8eb6-f099d5291897
+
+
 
 
 
