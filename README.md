@@ -41,6 +41,9 @@ https://github.com/user-attachments/assets/b3348373-02f1-44cc-94e2-21b809a053d7
 https://github.com/user-attachments/assets/6793dba3-a9d9-4fbb-88ef-8d1e6dd30866
 
 
+10a output : https://github.com/user-attachments/assets/52ffc582-a90f-487b-886c-f84e0d92c18f
+https://github.com/user-attachments/assets/89b181e0-9919-412b-a90a-c3b09fac6607
+
 
 
 
