@@ -24,6 +24,13 @@ https://github.com/user-attachments/assets/2eeaa3fa-1b43-4e2b-b16f-c69b2508a50b
 https://github.com/user-attachments/assets/b93fece5-eed5-4deb-affd-b91af4fad95f
 
 
+8b output :-https://github.com/user-attachments/assets/4374fa11-8925-4807-88e6-1d396989a1be
+https://github.com/user-attachments/assets/2eb5247b-2580-45a3-86b8-feebedcc64ac
+
+
+
+
+
 
 
 
